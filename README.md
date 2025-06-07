@@ -1,1 +1,1 @@
-# Cyber-Security-
+6+ years of experience in IT industry with  4+ experience in System administration in various environments-Window / Mac. 2+ years of experience with Linux environments. Proficient in vulnerability assessment, incident response, and security tool implementation. Identifying and resolving security gaps to protect sensitive data and ensure compliance with industry standards.
